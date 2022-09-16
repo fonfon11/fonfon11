@@ -1,16 +1,20 @@
-### Hi there 👋
+## afonso 
 
-<!--
-**fonfon11/fonfon11** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+:sparkles:oi meu nome e afonso dossena
 
-Here are some ideas to get you started:
+:collision::soccer:eu jogo bola e  :school:estudo no colegio sesi da industria tenho 15 anos:two_hearts:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+:house:sou natural do brasil devolvam meu ouro:fu:
+
+:shipit: segue no insta @afonsodossena06
+
+gosto de jogar no meu ps4 :video_game:
+
+minha comida preferida e batata frita :fries:
+
+e eu sei fazer bolo :birthday:
+
+nao gosto de chuva :zap::cloud::zap:
+ 
+tenho uma plantaçao de tomate :tomato:
+
