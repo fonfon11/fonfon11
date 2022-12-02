@@ -18,3 +18,5 @@ nao gosto de chuva :zap::cloud::zap:
  
 tenho uma plantaçao de tomate :tomato:
 
+tenho 3 cachorros :dog:
+
