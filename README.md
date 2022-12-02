@@ -2,7 +2,7 @@
 
 :sparkles:oi meu nome e afonso dossena
 
-:collision::soccer:eu jogo bola e  :school:estudo no colegio sesi da industria tenho 15 anos:two_hearts:
+:collision::soccer:eu jogo bola e  :school:estudo no colegio sesi da industria tenho 16 anos:two_hearts:
 
 :house:sou natural do brasil devolvam meu ouro:fu:
 
